@@ -1,15 +1,15 @@
 # tiktok-auto-report
 TikTok Auto Report V3.1 (By LinhIT2)
 <br>
-Upgraded 24.12.2023 :
+Upgraded 24.12.2023
 <br>
->>>>>> Auto update
+>>>>>> Auto update.
 <br>
 >>>>>> New users + Proxy premium.
 <br>
->>>>>> Android version : Final
+>>>>>> Android version : Final.
 <br>
->>>>>> PC version : coming soon
+>>>>>> PC version : coming soon.
 <br>
 Telegram: https://t.me/LinhIT2
 <br>
